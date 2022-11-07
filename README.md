@@ -12,3 +12,5 @@
 
 ## PERUBAHAN 3 ##
 ![Screenshot (73)](https://user-images.githubusercontent.com/94009296/200435893-cb79b729-fc12-4f0b-a20c-e48312fe0545.png)
+
+![Screenshot (74)](https://user-images.githubusercontent.com/94009296/200438132-a480d03d-cac2-4ae5-bc1b-0e35c4b90a2f.png)
